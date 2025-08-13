@@ -1,3 +1,6 @@
+Parin Bansupa
+https://github.com/Vegasa620-th/ParinCV
+
 Thanks for downloading this template!
 
 Template Name: SnapFolio
